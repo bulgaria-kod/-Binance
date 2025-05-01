@@ -28,3 +28,6 @@
 ---
 
 🎯 **FNN1IQUY е вашият ключ към крипто света. Използвайте го и стартирайте с предимство!**
+
+![bul](https://github.com/user-attachments/assets/c80540a7-b46a-446b-9dc0-f9d3f955309f)
+
